@@ -2,7 +2,7 @@
 - 👀 I’m interested in Anime
 - 🌱 I’m currently learning Coding
 - 💞️ I’m looking to collaborate on Minecraft pvper
-- 📫 How to reach me (ninja7starteziyasu) discord id
+- 📫 How to reach me (_swordy.js) discord id
 - 😄 Pronouns: Sword
 - ⚡ Fun fact: I am a Lt3 in axe pvp
 - 🪓 I am a axe pvper 
